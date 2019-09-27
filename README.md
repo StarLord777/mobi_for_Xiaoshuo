@@ -1,0 +1,2 @@
+# mobi_for_Xiaoshuo
+搜集整理的可供kindle使用的小说
